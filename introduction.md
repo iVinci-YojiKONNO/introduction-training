@@ -10,8 +10,6 @@
 - ゲーム
     - Escape From Tarkovにはまっていて何も手についていません。困った。たまにValorantもやります。
 
-
 ## 1429 sunita
 
 ### 趣味
-
