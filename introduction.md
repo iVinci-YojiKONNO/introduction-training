@@ -14,3 +14,7 @@
 
 ### 趣味
 - クリケット
+dance 
+singing 
+reading books write poem and commucation with foreigner.
+my name is Sunita  im 222 years old . I'm from Nepal(The land of Mountain Everest).
